@@ -1,4 +1,4 @@
--  Hi, I’m @capntoad, you can call me cap!
+-  hi, I’m @capntoad, you can call me cap!
 - i'm an artist and a big indie game fan
 - you can reach me on discord via @capntoad
 - pronouns are she/her
